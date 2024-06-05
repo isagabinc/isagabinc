@@ -1,5 +1,5 @@
 A vida é sobre os pequenos detalhes
-
+![](https://media1.giphy.com/media/wG2Mqw0rUcmg8/200w.gif?cid=6c09b952f8m0cz4wloytwgtlqw5igpi5ok18cpp1xlw85buw&ep=v1_gifs_search&rid=200w.gif&ct=g)
 <!--
 **isagabinc/isagabinc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
